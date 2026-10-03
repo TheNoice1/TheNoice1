@@ -4,3 +4,4 @@
 
 I AM LEAFY, LEAFY IS ME. I like to draw and stuffs. If ya wanna talk, go ahead and do so. I NEVER start conversations meself so that's on ya.
 
+Have a nice rest of your 24 hour long loop!
