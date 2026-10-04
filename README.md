@@ -12,7 +12,7 @@ I follow osc n ppl I find coool on here. si.
 
 <br>
 
-<img src="gachiakuta.jpg" alt="Story Pin image" width="700">
+<img src="zanka-nijiku-zanka.gif" alt="Story Pin image" width="700">
 
 
 Have a nice rest of your 24 hour long loop <33 !!!
