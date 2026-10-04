@@ -10,7 +10,7 @@ I follow osc n ppl I find coool on here. si.
 
 <img src="683562049743244427.jpg" alt="Story Pin image" width="100">
 
-<img src="683562049743244427.jpg" alt="Story Pin image" width="100">
+<img src="leafy icon_pfp.jpg" alt="Story Pin image" width="100">
 
 
 
