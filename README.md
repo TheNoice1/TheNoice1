@@ -9,8 +9,7 @@ I AM LEAFY, LEAFY IS ME. I like to draw and stuffs. If ya wanna talk, go ahead a
 I follow osc n ppl I find coool on here. si.
 
 <img src="683562049743244427.jpg" alt="Story Pin image" width="100">
-</div>
-
+<tr>
 <img src="gachiakuta.jpg" alt="Story Pin image" width="700">
 
 
