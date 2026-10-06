@@ -21,6 +21,7 @@ Zanka appreciation row <33
 <br>
 
 <img src="zanka-nijiku-zanka.gif" alt="Story Pin image" width="700">
+<br><br>
 .......𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼.......
 <br><br>
 
