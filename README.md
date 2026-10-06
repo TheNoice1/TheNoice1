@@ -14,7 +14,7 @@ I follow osc n ppl I find coool on here. si.
 .......𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼.......<br>
 <br>
 
-Zanka appreciation row <33
+Zanka appreciation section
 
 <img src="683562049743244427.jpg" alt="Story Pin image" width="100">
 
