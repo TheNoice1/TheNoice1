@@ -10,6 +10,7 @@ I AM LEAFY, LEAFY IS ME. I like to draw and stuffs. If ya wanna talk, go ahead a
 I follow osc n ppl I find coool on here. si.
 <br><br>
 
+<br>
 .......𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼.......<br>
 <br>
 
