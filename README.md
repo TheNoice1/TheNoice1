@@ -8,8 +8,11 @@ I AM LEAFY, LEAFY IS ME. I like to draw and stuffs. If ya wanna talk, go ahead a
 
 
 I follow osc n ppl I find coool on here. si.
+<br><br>
+
+.......𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼.......<br>
 <br>
-.......𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼.......
+
 Zanka appreciation row <33
 
 <img src="683562049743244427.jpg" alt="Story Pin image" width="100">
@@ -18,7 +21,8 @@ Zanka appreciation row <33
 
 <img src="zanka-nijiku-zanka.gif" alt="Story Pin image" width="700">
 .......𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼.......
-<br>
+<br><br>
+
 
 Have a nice rest of your 24 hour long loop <33 !!!
 </div>
